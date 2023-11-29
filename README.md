@@ -1,0 +1,1 @@
+[FIGMA](https://www.figma.com/file/ZMJlaiLSjOJ0dPuXEVt1sC/Тестовое-задание?type=design&node-id=1-14&mode=design&t=q092eP8vz908Yqiy-0)
